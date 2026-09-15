@@ -59,4 +59,4 @@ A cópia, plágio ou dependência de ferramentas não autorizadas pode resultar 
 
 ---
 
-Bom trabalho! 🚀
+Bom trabalho!
